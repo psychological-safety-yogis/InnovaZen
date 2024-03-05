@@ -128,6 +128,10 @@
 ## Medications 
 ### *Obtain only through lawful prescription by and consultation with a qualified medical professional.
 
+<div align="center">
+![Who's coming with me, man?](https://y.yarn.co/b86fa734-0551-4ce8-9069-7cfab66ae5ed_text.gif)
+</div>
+
 #### Hydroxyzine. 
 50mg 4x daily, total 200. Good for mellowing and concentrating, although most people don't really feel it until they go up to 75 per dose. Also great for combatting depression.  Key to dumping memory into recycle bin, both desirable and less desirable.  Creates the blank slate, or "tabula rasa," from which ideas are born.
 
@@ -145,4 +149,3 @@
 
 ### *Nighttime Note: Night meds work best taken right before bed, rather than hanging back to enjoy their relaxation effects.  Delay will burn down their positive effects, ultimately netting more nightmares. 
 
-![Who's coming with me, man?](https://y.yarn.co/b86fa734-0551-4ce8-9069-7cfab66ae5ed_text.gif)
