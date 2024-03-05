@@ -1,5 +1,7 @@
 # Crime Fog's Zen Innovation Super Awesome List for the parasympathetic system
 
+TODO: map Awesome List to innovazen.dev
+
 ## Tea (extra foggy)
 
 ##### Ingredients: Harney and Sons Organic Moroccan Mint and White Christmas Tea. 
@@ -129,7 +131,7 @@
 ### *Obtain only through lawful prescription by and consultation with a qualified medical professional.
 
 <div align="center">
-![Who's coming with me, man?](https://y.yarn.co/b86fa734-0551-4ce8-9069-7cfab66ae5ed_text.gif)
+ <img src='https://github.com/psychological-safety-yogis/InnovaZen/blob/main/gifs/jerry-maguire-tom-cruise.gif?raw=true' alt='Who's coming with me?'>
 </div>
 
 #### Hydroxyzine. 
