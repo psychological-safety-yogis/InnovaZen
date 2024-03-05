@@ -15,17 +15,19 @@
 1) Run water through Keurig for a cup or two of hot (not coffee polluted) water, save it for 30+ minutes or less in the fridge.
 2) Pour some of the lukewarm (or less warm) water into your ceramic pot.  It doesn't have to be an expensive one. 
 
-![image-20240223100100031](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223100100031.png)
+![Ceramic teapot](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/ceramic-teapot.png)
 
-[Wood Fired Kettle 800ml Handmade Top-handle Clay Kettle-Electronic Kettle](https://www.etsy.com/listing/1407575642/wood-fired-kettle-800ml-handmade-top)
+[ie Wood Fired Kettle 800ml Handmade Top-handle Clay Kettle-Electronic Kettle](https://www.etsy.com/listing/1407575642/wood-fired-kettle-800ml-handmade-top)
 
 1) Drop in a smidge of [White Christmas tea](https://www.harney.com/products/white-christmas).  This will take the edge off the already polite mint green tea for those wary of strong overpowering matcha flavor. 
 
-![image-20240223100447052](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223100447052.png)![image-20240223100529042](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223100529042.png)
+![Harney and Sons White Christmas blend](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/white-christmas-tea.png)
+
+![White Christmas tea review](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/white-christmas-tea-review.png)
 
 1) Drop in a tablespoon or two of [Organic Moroccan Mint](https://www.harney.com/products/moroccan-mint). 
 
-![image-20240223100401204](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223100401204.png)
+![Harney & Son's Organic Morrocan Mint gunpowder green tea](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/organic-morrocan-mint-gunpowder-green-tea.png)
 
 ![image-20240223100249036](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223100249036.png)
 
@@ -34,7 +36,7 @@
 3) While that's going make another cup and a half of hot Keurig water (or something), ideally straight into your metal / other tea kettle.
 4) Carefully pour the brewed tea through its built-in internal filter out the spout into your second stainless steal or other tea kettle. 
 
-![image-20240223095951200](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223095951200.png)
+![Metal tea kettle for extra filtering](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/metal-teapot.png)
 
 1) Pour this tea-water through the second tea kettle's internal filter / spout into your normal pot.  
 2) Repeat until the tea is fully swapped over, filtered, and the second hot / warm water is added. 
@@ -58,19 +60,19 @@
 
 ![image-20240223101441521](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223101441521.png)
 
-![image-20240223101420284](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223101420284.png)
+![Baratza Coffee Grinder (or similar)](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/Baratza-coffee-grinder.png)
 
 2. Take coffee grounds into your funnel scoop thing.
 
-![image-20240223101547029](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223101547029.png)
+![Funnel scoop](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/coffee-scoop.png)
 
 3. Funnel coffee out of the closed scoop into a nice k-cup shaped reusable metal filter.
 
-![image-20240223101653565](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223101653565.png)
+![K-cup shaped reusable filter](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/coffee-filter.png)
 
 4. This is the most important part.  Tamp it down with your nice smooth coffee tamper thing.  Pour some reasonable grounds into the tamped down coffee and tamp it again until the grounds are reasonably tamped. 
 
-![image-20240223101820319](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223101820319.png)
+![Fancy metal coffee tamper thing](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/coffee-tamper.png)
 
 5. ##### Run through Keurig and enjoy.
 
