@@ -29,7 +29,7 @@
 
 ![Harney & Son's Organic Morrocan Mint gunpowder green tea](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/organic-morrocan-mint-gunpowder-green-tea.png)
 
-![image-20240223100249036](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223100249036.png)
+![Organic Morrocan Mint review](https://github.com/psychological-safety-yogis/InnovaZen/blob/main/screenshots/gunpowder-green-tea-review.png)
 
 1) Pour the other half of lukewarm water into this ceramic pot, put the top on it.
 2) Put it on the burner to low, you only want to warm it up with maybe a light mist coming off it if any, but probably none. 
@@ -58,7 +58,7 @@
 
 1. Grind coffee beans into finely ground coffee.
 
-![image-20240223101441521](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223101441521.png)
+![Subtle Earth Honduran Coffee](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/subtle-earth-Honduran-coffee.png)
 
 ![Baratza Coffee Grinder (or similar)](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/Baratza-coffee-grinder.png)
 
@@ -90,11 +90,11 @@
 
 1. [Dr. Teal's epsom salt and bath products](https://www.target.com/b/dr-teal-s/-/N-4u9fy), although I'm not normally an essential oils believer.  
 
-![image-20240223104114712](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223104114712.png)
+![Dr. Teal's Eucalyptus Mint Foaming Bath](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/dr-teals-eucalyptus-mint.png)
 
-![image-20240223104127675](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223104127675.png)
+![Dr. Teal's Lavender Bath](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/dr-teals-lavender-bath.png)
 
-![image-20240223104054287](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223104054287.png)
+![Dr. Teal's Pink Himalayan Salt Scrub](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/dr-teals-pink-himalayan-scrub.png)
 
 2. [Gilchrist & Soames Shower Gel & Body Washes (English Spa Collection Body Wash)](https://www.amazon.com/gp/product/B07CGC7Q9L/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1).  
 
