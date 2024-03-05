@@ -2,10 +2,6 @@
 
 TODO: map Awesome List to innovazen.dev
 
-<div align="center">
- <img src='https://github.com/psychological-safety-yogis/InnovaZen/blob/main/gifs/jerry-maguire-tom-cruise.gif?raw=true' alt='Who's coming with me?'>
-</div>
-
 ## Tea (extra foggy)
 
 ##### Ingredients: Harney and Sons Organic Moroccan Mint and White Christmas Tea. 
@@ -50,7 +46,9 @@ TODO: map Awesome List to innovazen.dev
 6) When there is some light mist coming up off the tea and it's normal hot coffee temperature, dump the hot sink water out of your thermos and dump in your tea, possibly filtering one last time through the metal tea kettle to get out the little bits.  
 7) Enjoy! 
 
-
+<div align="center">
+ <img src='https://github.com/psychological-safety-yogis/InnovaZen/blob/main/gifs/jerry-maguire-tom-cruise.gif?raw=true' alt='Who's coming with me?'>
+</div>
 
 ## Coffee
 
