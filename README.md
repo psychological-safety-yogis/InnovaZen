@@ -108,7 +108,7 @@
 
 ![Gilchrist & Soames Spa Therapy Sea Kelp Conditioner](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/gilchrist-soames-sea-spa-therapy-conditioner.png)
 
-5. Tea Tree Hair and Body (leave-in) Conditioner and Moisturizer
+5. ![Tea Tree Hair and Body (leave-in) Conditioner and Moisturizer](https://www.amazon.com/Tea-Tree-Hair-Moisturizer-10-14/dp/B002FJ11UW/)
 
 ![Tea Tree Hair and Body (leave-in) Conditioner and Moisturizer](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/tea-tree-leave-in-conditioner.png)
 
