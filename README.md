@@ -126,7 +126,7 @@
 
 
 ## Medications 
-### *Obtain only through lawful prescription by and consultation with qualified medical professional.
+### *Obtain only through lawful prescription by and consultation with a qualified medical professional.
 
 #### Hydroxyzine. 
 50mg 4x daily, total 200. Good for mellowing and concentrating, although most people don't really feel it until they go up to 75 per. Also depression. Key to dumping memory into recycle bin, both desirable and less desirable.  Creates the blank slate, or "tabula rasa," from which ideas are born.
