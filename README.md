@@ -123,3 +123,23 @@
 8. [Gold Bond foot powder](https://www.amazon.com/Gold-Bond-Maximum-Strength-Powder/dp/B074NBZWZM/).  Tilt a splash of it inside your sock and then shake to scatter it throughout your socks.
 
 ![Gold Bond foot powder](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/gold-bond-foot-powder.png)
+
+
+## Medications (obtain only through lawful prescription and consultation with qualified medical professional).
+
+#### Hydroxyzine. 
+50mg 4x daily, total 200. Good for mellowing and concentrating, although most people don't really feel it until they go up to 75 per. Also depression. Key to dumping memory into recycle bin, both desirable and less desirable.  Creates the blank slate, or "tabula rasa," from which ideas are born.
+
+#### Gabapentin.
+300mg 3x daily, 900 total. Good for physical pain, anxiety, depression. Old experienced psychiatric hospital / rehab psychiatrist says it's good for people with a family genetic history of alcoholism, due to our latent gaba deficiency. There is allegedly some research that it regenerates brain / neuron stuff so maybe good for dementia as well.  
+
+#### Sertraline. 
+100 in morning and 50 at night. 150 total. Great for anxiety, depression, compulsions. Side effects include happy sunshine, grass, snow.  Pretty much any nature will now appear quite pleasant, probably as it should. Side effects can include excessive spending if you're not careful (no bueno) and not needing to pee in the middle of the night (bueno).
+
+#### Mirtazapine. 
+15mg at night. Really helps nightmares (unlike Trazodone, which invokes deep nightmares). Accelerates the good Sertraline effect with less shopaholic side-effect. Good for anxiety and depression while awake as well. 
+
+#### Prazosin. 
+10mg at night. 
+
+### *Nighttime Note: Night meds work best taken right before bed, rather than hanging back to enjoy their relaxation effects.  Delay will burn down their positive effects, ultimately netting more nightmares. 
