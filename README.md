@@ -2,6 +2,10 @@
 
 TODO: map Awesome List to innovazen.dev
 
+<div align="center">
+ <img src='https://github.com/psychological-safety-yogis/InnovaZen/blob/main/gifs/jerry-maguire-tom-cruise.gif?raw=true' alt='Who's coming with me?'>
+</div>
+
 ## Tea (extra foggy)
 
 ##### Ingredients: Harney and Sons Organic Moroccan Mint and White Christmas Tea. 
@@ -130,10 +134,6 @@ TODO: map Awesome List to innovazen.dev
 ## Medications 
 ### *Obtain only through lawful prescription by and consultation with a qualified medical professional.
 
-<div align="center">
- <img src='https://github.com/psychological-safety-yogis/InnovaZen/blob/main/gifs/jerry-maguire-tom-cruise.gif?raw=true' alt='Who's coming with me?'>
-</div>
-
 #### Hydroxyzine. 
 50mg 4x daily, total 200. Good for mellowing and concentrating, although most people don't really feel it until they go up to 75 per dose. Also great for combatting depression.  Key to dumping memory into recycle bin, both desirable and less desirable.  Creates the blank slate, or "tabula rasa," from which ideas are born.
 
@@ -151,3 +151,6 @@ TODO: map Awesome List to innovazen.dev
 
 ### *Nighttime Note: Night meds work best taken right before bed, rather than hanging back to enjoy their relaxation effects.  Delay will burn down their positive effects, ultimately netting more nightmares. 
 
+<div align="center">
+ <img src='https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/gifs/jim-breuer-half-baked.gif' alt='Who's coming with me, man?'>
+</div>
