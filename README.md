@@ -96,24 +96,24 @@
 
 ![Dr. Teal's Pink Himalayan Salt Scrub](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/dr-teals-pink-himalayan-scrub.png)
 
-2. [Gilchrist & Soames Shower Gel & Body Washes (English Spa Collection Body Wash)](https://www.amazon.com/gp/product/B07CGC7Q9L/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1).  
+2. [Gilchrist & Soames Shower Gel & Body Washes (English Spa Collection Body Wash)](https://www.amazon.com/gp/product/B07CGC7Q9L).  
 
 ###### What I like to do here is use it like normal body wash, but also get a good scrub in my hair and face before shampoo and conditioner.
 
-![image-20240223103900417](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223103900417.png)
+![Gilchrist & Soames English Spa body wash](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/gilchrist-soames-english-spa.png)
 
-3. [NEST New York Shampoo, Sicilian Tangerine](https://www.amazon.com/gp/product/B07P6BZKZ2/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1)
+3. [NEST New York Shampoo, Sicilian Tangerine](https://www.amazon.com/gp/product/B07P6BZKZ2/)
 
-![image-20240223103624744](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223103624744.png)
+![Nest Sicilian Tangerine Shampoo](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/nest-sicilian-tangerine-shampoo.png)
 
-4. [Gilchrist & Soames Spa Therapy Sea Kelp Conditioner](https://www.amazon.com/gp/product/B0BZFPZ2L7/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&psc=1) - 9oz - Detoxifying, All Hair Types, Zero Parabens, Sulfates, and Phthalates 
+4. [Gilchrist & Soames Spa Therapy Sea Kelp Conditioner](https://www.amazon.com/gp/product/B0BZFPZ2L7/) - 9oz - Detoxifying, All Hair Types, Zero Parabens, Sulfates, and Phthalates 
 
-![image-20240223104021527](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223104021527.png)
+![Gilchrist & Soames Spa Therapy Sea Kelp Conditioner](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/gilchrist-soames-sea-spa-therapy-conditioner.png)
 
-5. [Lectric Shave](https://www.lectricshave.com/).  Smells great.  Not just good for shaving.  Comes in handy anywhere you could use alcohol, such as cleaning electronics or removing glue / grime. 
+5. [Lectric Shave](https://www.lectricshave.com/).  Smells great.  Minty fresh.  Not just good for shaving.  Comes in handy anywhere you need alcohol, such as cleaning electronics, removing glue / grime / marker. 
 
-![image-20240223104620165](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223104620165.png)
+![Lectric Shave](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/lectric-shave.png)
 
-6. Tea Tree Hair and Body (leave-in) Moisturizer
+6. Tea Tree Hair and Body (leave-in) Conditioner and Moisturizer
 
-![image-20240223104432034](C:\Users\danie\AppData\Roaming\Typora\typora-user-images\image-20240223104432034.png)
+![Tea Tree Hair and Body (leave-in) Conditioner and Moisturizer](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/tea-tree-leave-in-conditioner.png)
