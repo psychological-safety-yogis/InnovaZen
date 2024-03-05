@@ -1,4 +1,4 @@
-# Crime Fog's Zen Innovation Super Awesome List for the parasympathetic system
+# Crime Fog's Zen Innovation Super Awesome List for the Parasympathetic System
 
 TODO: map Awesome List to innovazen.dev
 
