@@ -144,3 +144,5 @@
 10mg at night. 
 
 ### *Nighttime Note: Night meds work best taken right before bed, rather than hanging back to enjoy their relaxation effects.  Delay will burn down their positive effects, ultimately netting more nightmares. 
+
+![Who's coming with me, man?](https://y.yarn.co/b86fa734-0551-4ce8-9069-7cfab66ae5ed_text.gif)
