@@ -1,6 +1,4 @@
-# Dan's innovation zen cocktail for the parasympathetic system 
-
-# Crime Fog's Zen Innovation Super Awesome List
+# Crime Fog's Zen Innovation Super Awesome List for the parasympathetic system
 
 ## Tea (extra foggy)
 
@@ -110,10 +108,18 @@
 
 ![Gilchrist & Soames Spa Therapy Sea Kelp Conditioner](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/gilchrist-soames-sea-spa-therapy-conditioner.png)
 
-5. [Lectric Shave](https://www.lectricshave.com/).  Smells great.  Minty fresh.  Not just good for shaving.  Comes in handy anywhere you need alcohol, such as cleaning electronics, removing glue / grime / marker. 
+5. Tea Tree Hair and Body (leave-in) Conditioner and Moisturizer
+
+![Tea Tree Hair and Body (leave-in) Conditioner and Moisturizer](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/tea-tree-leave-in-conditioner.png)
+
+6. [Lectric Shave](https://www.lectricshave.com/).  Smells great.  Minty fresh.  Not just good for shaving.  Comes in handy anywhere you need alcohol, such as cleaning electronics, removing glue / grime / marker. 
 
 ![Lectric Shave](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/lectric-shave.png)
 
-6. Tea Tree Hair and Body (leave-in) Conditioner and Moisturizer
+7. [Body Glide](https://www.amazon.com/BodyGlide-Original-Chafe-Chafing-Prevent/dp/B0CP32JJFX).  Keep one for your feet and others (separately) as needed.  Take care of thy feet and they shall take care of thee.
 
-![Tea Tree Hair and Body (leave-in) Conditioner and Moisturizer](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/tea-tree-leave-in-conditioner.png)
+![Body Glide](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/body-glide.png)
+
+8. [Gold Bond foot powder](https://www.amazon.com/Gold-Bond-Maximum-Strength-Powder/dp/B074NBZWZM/).  Tilt a splash of it inside your sock and then shake to scatter it throughout your socks.
+
+![Gold Bond foot powder](https://raw.githubusercontent.com/psychological-safety-yogis/InnovaZen/main/screenshots/gold-bond-foot-powder.png)
