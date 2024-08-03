@@ -132,8 +132,11 @@ TODO: map Awesome List to innovazen.dev
 ## Medications 
 ### *Obtain only through lawful prescription by and consultation with a qualified medical professional.
 
+#### Abilify.
+10mg in the morning or 5mg AM 5mg PM. Fantastic addition to Sertraline for mood stabilization and negating compulsions. Cuts in half the need for hydroxyzine (200 down to 100).
+
 #### Hydroxyzine. 
-50mg 4x daily, total 200. Good for mellowing and concentrating, although most people don't really feel it until they go up to 75 per dose. Also great for combatting depression.  Key to dumping memory into recycle bin, both desirable and less desirable.  Creates the blank slate, or "tabula rasa," from which ideas are born.
+50mg 2x daily, total 100. Good for mellowing and concentrating, although most people don't really feel it until they go up to 75 per dose. Also great for combatting depression.  Key to dumping memory into recycle bin, both desirable and less desirable.  Creates the blank slate, or "tabula rasa," from which ideas are born.
 
 #### Gabapentin.
 300mg 3x daily, 900 total. Good for physical pain, anxiety, depression. Old experienced psychiatric hospital / rehab psychiatrist says it's good for people with a family genetic history of alcoholism, due to our latent gaba deficiency. There is allegedly some research that it regenerates brain / neuron stuff so maybe good for dementia as well.  
